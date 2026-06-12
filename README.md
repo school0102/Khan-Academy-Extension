@@ -1,1 +1,0 @@
-# Khan-Academy-Extension
